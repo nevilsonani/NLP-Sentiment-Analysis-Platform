@@ -1,4 +1,3 @@
-![GaganpreetKaurKalsi (1600 × 840 px) (3)](https://user-images.githubusercontent.com/54144759/173081855-4057d6b4-2e57-475b-961e-5cdb91604bda.png)
 
 <br>
 
